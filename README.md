@@ -59,5 +59,5 @@ Claude API · Git · GitHub
 ---
 
 ## 📫 Contact
-
+- X: https://x.com/KmH41TA7Tu25654
 - 国内・海外問わずお気軽にどうぞ / Feel free to reach out anytime 🤝
